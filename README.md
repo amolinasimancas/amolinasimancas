@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+# About me
+
+Mechanical Engineer & Steelmaking Expert 👷🏽‍♂️
+Drummer 🥁 / Bassist 🎸/ Gamer 🎮 / Programming Enthusiast 💻 
+🔗 *about.me/antonio.molina*
